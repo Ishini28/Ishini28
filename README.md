@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on innovative tech projects, particularly in mobile and web applications, and solutions for real-world challenges.
 - 📫 How to reach me: [Email](mailto:dishini1228raj@gmail.com) | [LinkedIn](http://www.linkedin.com/in/ishini-rajapaksha-270989227/)
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: In addition to tech, I have a creative side and am also building a portfolio as a beautician and hairdresser!
+  
 
 
 <!---
